@@ -1,2 +1,2 @@
 # Avaliacao_JAVA
- <img src="https://prnt.sc/zeYQf8Xk4UPf" alt="OALALLA"> </img>
+ <img src="https://ibb.co/M8dPsXS" alt="OALALLA"> </img>
